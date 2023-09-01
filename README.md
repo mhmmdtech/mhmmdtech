@@ -18,6 +18,6 @@ If you're interested in collaborating with me or learning more about my skills a
 - Twitter: [twitter.com/mhmmdtech](https://twitter.com/mhmmdtech)
 - Medium: [medium.com/@mhmmdtech](https://medium.com/@mhmmdtech)
 
-Feel free to send me an email at [mhmmdtech@yahoo.com](mailto:mhmmdtech@yahoo.com). I'm always open to new opportunities and would be thrilled to explore exciting opportunities together!
+Feel free to send me an email at [mhmmdtech@yahoo.com](mailto:mhmmdtech@yahoo.com). I'm always open to new opportunities and would be thrilled to explore exciting ventures together!
 
 You can also explore my GitHub repositories to get a broader view of my work and projects. Thank you for stopping by!
